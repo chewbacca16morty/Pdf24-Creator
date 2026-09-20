@@ -215,4 +215,4 @@ PDF24 Creator is the full free version with all features and updates included. T
 Take control of your PDF files today with PDF24 Creator! [Download now](https://www.softyne.com/pdf24-creator) and experience the ease of PDF management.
 
 ---
-**Last updated:** 2026-09-20 18:02:07 UTC
+**Last updated:** 2026-09-20 21:12:29 UTC
